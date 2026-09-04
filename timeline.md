@@ -5,10 +5,17 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 ## Desert kid (1987 – 1996)
 
 - **1987** — **Born 29 May.** Moved to Saudi Arabia at three months old.
-- **early 1996** — Moved to New Zealand, almost 9 — nearly a year in Wanaka, then Christchurch from 1997. Bullied for being different — until it turned out she was a naturally gifted athlete. Worth got wired to performance.
+- **early 1996** — Moved to New Zealand, almost 9 — ~9 months in Wanaka (freezing, two jackets and mittens after Saudi's 30–40°), then Christchurch from 1997 when her CFO dad needed city work.
+- **~1997** — **Fendalton Primary: relentless bullying** — kids waited outside school to kick her. Mum moved her to Ilam Primary (university lecturers' kids), where it got better — and where sport arrived, and worth got wired to performance.
 
-## The best boy (2010 – 2015)
+## The best boy (1997 – 2015)
 
+- **~1999–2000** — Cobham Intermediate: rugby takes off, top teams, suddenly the cool kid.
+- **~2001** — **The gummy bear year.** Puberty hits at Burnside High and she can't face becoming a man — she just doesn't have the words yet. Bunks school to sit in the mall eating gummy bears eight hours a day. Fails 3rd form; labelled a bad kid.
+- **~2002–03** — Christchurch Boys' High, sent to be "straightened out." Lowest class → 3rd in class → top English/maths/science across the board, report card hidden from rugby mates. Union accelerates: division-winning 15As/16As, best in Christchurch.
+- **~2004–05** — Chooses to escape Boys' High for Burnside's last two years — worse for rugby, better for her. 1st XV, a division down.
+- **~2006–08** — Christchurch Football Club Colts: championship with Colts Black, then top-three finishes three years running (1st, 2nd, 3rd). Seniors tour to Spain (~2008): beat the Spanish national team and clubs, three weeks in Madrid. Dropped from the top team on return — quits union, switches to league.
+- **~2008–10** — **Papanui Tigers (league)** — immediately better at league than union. Year one: Wests reps. Year two: **NZ Residents team** + Canterbury + Wests reps, touring all over NZ.
 - **2010** — BCom, University of Canterbury (Management Science + Management).
 - **2011** — **Moves to Brisbane, in between the two Christchurch earthquakes. Professional rugby league, Queensland Cup** — Sunshine Coast Sea Eagles (2011–2012), while simultaneously working full-time at CITEC, Brisbane (service desk → cloud specialist).
 - **2012** — Immortalised in a video game: *Rugby League Live 2* (PS3/Xbox 360) licensed the Queensland Cup rosters — playable character, forever starting for the Sea Eagles.
