@@ -58,7 +58,17 @@ Rugby union accelerated hard at Boys' High: 15As and 16As, the best teams in Chr
 
 Then 2011: Brisbane, between the earthquakes, and the Queensland Cup. (See `timeline.md` and `career.md`.)
 
-## Threads worth noticing
+## The resentment years (~late Burnside – early uni, ~2004–2008)
+
+Told straight, because she told it straight: this is when she got really misogynistic — but not in the traditional sense. It was resentment that women got the things she wanted: to be valued and loved for their looks, their sweetness, their kindness — *and* their achievements, their aggression, their stoicism, the way a man is valued. The whole package looked like everything she was locked out of.
+
+The bitter irony of the uni years: multiple university girls tried to befriend her in order to sleep with her — she was a very attractive, soft man — while all she wanted from them was friendship in female form. So the script inverted: *you women always say men are only after sex, but you're doing exactly what you accuse us of.* Every attempt at the thing she needed most (female friendship, closeness to femininity) ended in being wanted as a body instead. It built real resentment.
+
+And there was a second engine underneath: she had to push away from all things feminine *because she loved it*. "I can't go close to anything feminine because they know I love it. I know I'll sink in — and they'll call me gay, and I'll soon be a professional rugby player. I can't be seen like that." So femininity became a live wire: crave it, touch it, lose everything.
+
+The denial layer, in her own words: *"Not all men — but not me. Not really not me. Who would transcend a woman? Actually... not me."*
+
+And the truth under all of it, the ladder she can only see now: **"I wanted their pain. I wanted to be like them. I wanted to be them. I wanted to be me."** She didn't idealize womanhood from the outside — she wanted all of it, including its costs. The resentment was starved identification wearing anger's clothes. It dissolved when the jealousy finally got answered — not by an argument, but by becoming her.
 
 - The bullying didn't stop because she changed — it stopped when sport made her valuable. That's the wiring: worth = performance.
 - The gummy bear year is the earliest documented signal of gender dysphoria — a body refusing the future being forced on it, fifteen years before she had the words.
