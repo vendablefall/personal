@@ -33,9 +33,9 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 - **Mar 2022** — **Starts medical transition.** The same year she starts at Trimble as senior software architect — petabyte-scale geospatial platform, 8 AWS regions, later FedRAMP lead architect.
 - **Feb 2024** — Bridget and Lexi part ways, two years into transition. The bus account still stands; Bridget still follows her art page.
 
-## Wellington rebuild (late 2024 – now)
+## Wellington rebuild (March 2024 – now)
 
-- **late 2024** — **Moves to Wellington**, after a week in Veronica and Igor's front room showed her the city. Two rough flats first: Evans Bay with William (his mess wins after 4–5 months), then a Roseneath house with a stunning view and a heartbreaking indoor cat.
+- **Mar 2024** — **Moves to Wellington**, the month after the breakup, after a week in Veronica and Igor's front room showed her the city. Two rough flats first: Evans Bay with William (his mess wins after 4–5 months), then a Roseneath house with a stunning view and a heartbreaking indoor cat.
 - **Mar 2025** — **Home: the Coromansion, Newtown.** The big party flat, minutes from Veronica, Igor and the kids. Found family in place: Veronica, Igor, Shaz.
 - **2025–2026** — **DEXI rises; Reach is born.** DJ career takes off — dark techno and bass, the KiwiBurn cow becomes a brand. Builds Reach, an accessible gaming platform: ~15 games, real testers, several published.
 - **Aug 2026** — The big flat party: 150–200 people, an all-fem bass lineup she curated herself, DEXI on the 2–3am set. Sober these days, and proud of it.

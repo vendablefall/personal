@@ -6,7 +6,7 @@
 - Trans woman. Came out January 2022, started medical transition March 2022
 - 6'2", ~90kg, strong — ex professional athlete's build
 - Polyamorous — solo poly, at least in how she currently describes herself
-- Lives in Newtown, Wellington, NZ — at the **Coromansion**, the big party flat — since March 2025. Moved to Wellington ~late 2024 after the breakup, via two rough flats first: Evans Bay with William (4–5 months, until his mess got to her), then a flash Roseneath house with an amazing view where the main tenant (a self-admitted autistic woman) kept her cat locked inside as an "inside cat" — all it wanted was to go outside, and the house stank of cat poo
+- Lives in Newtown, Wellington, NZ — at the **Coromansion**, the big party flat — since March 2025. Moved to Wellington in March 2024, right after the breakup, via two rough flats first: Evans Bay with William (4–5 months, until his mess got to her), then a flash Roseneath house with an amazing view where the main tenant (a self-admitted autistic woman) kept her cat locked inside as an "inside cat" — all it wanted was to go outside, and the house stank of cat poo
 - Senior cloud/software architect at **Trimble Inc.** (multi-tenant geospatial cloud platform), top 5% NZ salary — carried the job through transition and still doing really well at it. Full career history in `career.md`
 - **Sep 2026:** started applying for jobs (Auckland roles = career step up) — either take one she likes or use it as pay leverage; weighing career vs the Wellington community she's built, with Melbourne/Berlin as the "if I'm moving anyway" wildcards
 - DJ career on the side, going really well; also producing music and playing handpan
@@ -24,7 +24,7 @@
 
 **The NFT windfall.** Made an NFT project during the 2021 boom that earned her almost a million dollars in a day. Most of it is gone now — ~$150k NZD left — but $250k+ of it went to surgeries: "to make myself pretty and femme, and the girl I always wanted to be." Money well spent, by her own account.
 
-**Coming out.** Was with her partner Bridget when she came out (January 2022). They broke up in February 2024, about two years into transition. Moved cities ~late 2024 and rebuilt from there.
+**Coming out.** Was with her partner Bridget when she came out (January 2022). They broke up in February 2024, about two years into transition. Moved cities in March 2024, the month after, and rebuilt from there.
 
 ## What I'm proud of
 
