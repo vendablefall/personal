@@ -27,8 +27,9 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 - **2020** — **Home to NZ: Arrowtown**, to be closer to family — Lee, Dennis, Sandy and co — and to build the housebus with Bridget: buys a bus, cuts the roof off, builds a home (Little Kiwi Bus — @littlekiwibus, littlekiwibus.com). Day job: remote for BinderPOS, a Tauranga company.
 - **2021** — **AiVatar — the million-dollar day.** Principal architect and developer of the AI NFT collaboration with Trey Ratcliff. 6,666 mints in 24 hours, ~$1M in a day; $250k+ later funds her surgeries. Also: Senior Cloud Architect at CFB Group; leet.cloud consultancy (2020–2022).
 
-## Becoming Lexi (2022 – 2024)
+## Becoming Lexi (late 2021 – 2024)
 
+- **late 2021** — **The realization.** The windfall lets her quit her job and sit with the question: what do I want — a house, a car, a world trip? All she wanted was to be her. The memories come floating back. A 5-gram hero dose of mushrooms shows her that a lifetime of jealousy and insecurity was her wanting to be a girl — and pushing herself away from it to be the best boy. Without the windfall, she doesn't think she would have come out at all.
 - **Jan 2022** — **Comes out as Lexi.** First Instagram post of the era: a festival photo in a TRANS HUMANS ARE WONDERFUL t-shirt.
 - **Mar 2022** — **Starts medical transition.** The same year she starts at Trimble as senior software architect — petabyte-scale geospatial platform, 8 AWS regions, later FedRAMP lead architect.
 - **early Feb 2024** — Bridget and Lexi part ways, two years into transition. The bus account still stands; Bridget still follows her art page.

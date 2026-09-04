@@ -24,6 +24,8 @@
 
 **The NFT windfall.** Made an NFT project during the 2021 boom that earned her almost a million dollars in a day. Most of it is gone now — ~$150k NZD left — but $250k+ of it went to surgeries: "to make myself pretty and femme, and the girl I always wanted to be." Money well spent, by her own account.
 
+**The realization (late 2021).** This part matters: without the windfall, she doesn't think she would have come out or transitioned. The money let her quit her job (CFB Group at the time — she also recalls it as Mindpass) and actually sit with the question: *what do I want in life?* A house? A car? A world trip? All she wanted was to be her. The memories came floating back. Then a hero dose of mushrooms — 5 grams — showed her what was underneath: all the jealousy she'd carried her whole life, all the insecurities, were her wanting to be a girl and wishing she was one — and pushing herself away from it to be the best boy. The windfall didn't just fund the transition; it created the silence in which she could finally hear it.
+
 **Coming out.** Was with her partner Bridget when she came out (January 2022). They broke up in early February 2024, about two years into transition. Moved cities in late March 2024, about seven weeks later — from Arrowtown, where they'd been living, up to Wellington — and rebuilt from there.
 
 ## What I'm proud of
