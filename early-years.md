@@ -32,11 +32,11 @@ Landed from Saudi Arabia — average temperature 30–40° — into a Wanaka spr
 
 **Burnside High, 3rd form (~2001) — the gummy bear year.** Puberty kicked in and she had a huge freak-out she only understood decades later: she didn't want her body to change into a man's. At the time she had no idea what it was — just that she couldn't be there. She bunked school and sat in the mall eating gummy bears for eight hours a day rather than going to school and being a boy. *"Yuck. I'd rather be absent."* Failed 3rd form. Labelled a bad kid.
 
+Same year, same corridors, a signal she can only read now: jealous of how the girls' bums looked in their kilts, and wanting to wear a kilt herself. At the time, just confusing envy; in hindsight — jealousy of their feminine bodies, of *being* girls. The meltdown and the kilt envy were the same message arriving through two channels at once.
+
 **Christchurch Boys' High (~2002–2003, 4th & 5th form).** Her parents sent her to Boys' High — a serious rugby school — to "straighten her out." They put her in the lowest class for 4th form; she came 3rd in class, because she was never a bad student — she was having a gender meltdown. Two years later she was in the top English, maths and science classes across the board — and **hid her report card from her rugby friends** because they hassled her for being a nerd. None of her rugby mates were in any of her classes. (The double life — excellence in two worlds, visible in neither — starts here, years before Brisbane.)
 
 Rugby union accelerated hard at Boys' High: 15As and 16As, the best teams in Christchurch — won their divisions.
-
-**A 4th-form signal she can only read now:** she remembers being jealous of how the girls' bums looked in their school kilts, and wanting to wear a kilt herself. At the time it was just a confusing envy; looking back she knows exactly what it was — jealousy of their feminine bodies, of *being* girls. Another entry in the long ledger of jealousy that the mushrooms would finally total up in 2021.
 
 **Back to Burnside (~2004–2005, last two years).** After two years of succeeding at Boys' High, she was given the choice of school — and left for Burnside, the worse rugby school, because she hated Boys' High. ("My rugby career probably would have been better if I'd stayed. But I'm trans, and I hated that place.") Played 1st XV at Burnside, a division down; lost to the Boys' High 1st XV by plenty, "which was shameful."
 
