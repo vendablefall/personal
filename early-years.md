@@ -34,6 +34,14 @@ Landed from Saudi Arabia — average temperature 30–40° — into a Wanaka spr
 
 Same year, same corridors, a signal she can only read now: jealous of how the girls' bums looked in their kilts, and wanting to wear a kilt herself. At the time, just confusing envy; in hindsight — jealousy of their feminine bodies, of *being* girls. The meltdown and the kilt envy were the same message arriving through two channels at once.
 
+**The family upheaval (~2001–02).** Around this time her dad was investigated by the Serious Fraud Office over a business he'd opened with friends that competed with his main employer. He was fired, and the family had to downgrade houses. A side effect of the new house: the kids got their own computers in their rooms, with high-speed internet.
+
+**The daily escape hatch (~age 13 – Jan 2022).** With a computer in her room came a severe porn addiction — but only one kind ever worked: **pregnancy porn, in which she imagined herself as the pregnant woman.** A big belly, a baby inside, a husband who loved her, about to give birth. That was the only fantasy she ever had — for the rest of her pre-Lexi life. Morning, evening, any spare time: close her eyes and drift into the body of a woman — especially a pregnant woman, loved and made pregnant by her husband.
+
+Her own analysis, which is the important part: **it was the suppression mechanism.** The 3rd-form terror of becoming a man had come online, and the daily ritual let her *experience a woman's body every day* — which made it survivable to live the rest of each day as a man. A pressure valve, opened twice daily for twenty years, that kept the mask wearable.
+
+The proof of the analysis is what happened when the mask came off: **she hasn't watched porn once since coming out — four years and counting.** The addiction wasn't about sex. It was about the body. Once she lived in it, the escape hatch had nothing left to escape from. (Note the shape of the fantasy, too: not just a woman's body — a woman *loved by a husband*, carrying his baby. The 13-year-old's deepest fantasy and the 39-year-old's stated deepest want — to be loved, desired, and claimed as a woman — are the same wish, quarter of a century apart.)
+
 **Christchurch Boys' High (~2002–2003, 4th & 5th form).** Her parents sent her to Boys' High — a serious rugby school — to "straighten her out." They put her in the lowest class for 4th form; she came 3rd in class, because she was never a bad student — she was having a gender meltdown. Two years later she was in the top English, maths and science classes across the board — and **hid her report card from her rugby friends** because they hassled her for being a nerd. None of her rugby mates were in any of her classes. (The double life — excellence in two worlds, visible in neither — starts here, years before Brisbane.)
 
 Rugby union accelerated hard at Boys' High: 15As and 16As, the best teams in Christchurch — won their divisions.
