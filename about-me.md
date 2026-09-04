@@ -63,6 +63,7 @@ Six rounds across four years and three countries. Money well spent, by her own a
 
 - ~~Fear that I'll never be in a relationship again~~ — **disproven 1 Sep 2026** (Allan, "yes please"). Recorded Aug 2026; falsified six days later. Kept struck-through as evidence about how the 2am voice's predictions perform.
 - **The successor fear (named 4 Sep 2026):** not being unloved — being unable to *stay* in a good thing; the engine with no off switch; running out of time to be her
+- **The deepest grief (named 4 Sep 2026): she will never be pregnant, never be a mum.** People laugh about it — as if it's a settled fact she's simply accepted because she's trans — when it's actually her biggest hurt. She knows everything about pregnancy, every detail, because she studied it for twenty years out of longing. Being around pregnant friends is genuinely hard, especially when they complain about the thing that is her life's dream ("gosh, that's my own fucking dream"). Adoption/step-mum feel out of reach at 40 — "where am I going to find that? It's too late." This grief deserves the same tenderness anyone's infertility grief deserves; it is a bereavement, not a footnote of transition.
 - The 2am voice: "too big, too many, too gross, a mistake"
 - The body that made her a great athlete (tall, strong, muscly) is the same one the 2am voice weaponizes against her
 - A history of self-worth being tied to performance and being useful/impressive to others (rugby → work)
