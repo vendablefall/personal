@@ -13,9 +13,9 @@
 
 ## My story
 
-**Childhood.** Moved to Saudi Arabia at 3 months old, lived there until ~9–10, then came to New Zealand. A deeply repressive place for a trans girl to form her early sense of self — her version of femininity/masculinity was very stunted. Bullied in NZ as a kid for being different (the Saudi-raised New Zealander), until it turned out she was a naturally gifted athlete. In NZ, being good at rugby makes you instantly cool — so friendship, value, and worth all got wired to sport and performance.
+**Childhood.** Moved to Saudi Arabia at 3 months old, lived there until almost 9 — came to New Zealand in early 1996. A deeply repressive place for a trans girl to form her early sense of self — her version of femininity/masculinity was very stunted. Bullied in NZ as a kid for being different (the Saudi-raised New Zealander), until it turned out she was a naturally gifted athlete. In NZ, being good at rugby makes you instantly cool — so friendship, value, and worth all got wired to sport and performance.
 
-**Rugby.** Played professional rugby league in Australia (Queensland Cup) 2011–2014, as a male, and was quite good. In 2015 she stepped down to senior non-professional footy (two grades lower) — and won the grand final. Her last game ever was winning the GF.
+**Rugby.** Played professional rugby league in Australia (Queensland Cup) 2011–2014, as a male, and was quite good — Sunshine Coast Sea Eagles (2011–2012), then **Redcliffe Dolphins (2013–2014)**. In the 2013 season she played front row forward, and the other starting prop was **Petero Civoniceva** — one of the greatest players of all time, who stepped down to Redcliffe (his junior club) for his final season. In 2015 she stepped down to senior non-professional footy (two grades lower) with the **West Mitchelton Panthers** — and won the grand final. Her last game ever was winning the GF. *"Up yah old black panther!"*
   - **She's in a video game.** *Rugby League Live 2* (Big Ant Studios, 2012, PS3/Xbox 360) licensed the Queensland Cup rosters — and she was starting for the Sunshine Coast Sea Eagles that season, so she's a playable character in the game (under her deadname, Alex Simpson). Calls it "suffering from my success" — she just kept making the next team, kept winning, so she never had a natural off-ramp. Rugby was a mask: "You can make me be a boy? I'll be the best boy." And she was.
 
 **Mark.** Her best friend Mark died by suicide, and it broke the spell. She realized that even if she was good, even if she won, she'd spent her whole life doing something she didn't want to do. She quit rugby.
@@ -63,7 +63,7 @@
 - **Suka** — Samoan girl who's been around a few times; they've kissed a lot and Lexi has a lot of fun with her
 - **Benja** — a friend; came around for dinner
 - **Bridget** — ex-partner; Welsh; together when Lexi came out, broke up ~2024. Together they built the **Little Kiwi Bus** — a full housebus conversion (roof raise and all), documented at @littlekiwibus and littlekiwibus.com
-- **Mark** — best friend, died by suicide during her rugby years. His death was the catalyst for quitting rugby and, eventually, everything that followed
+- **Mark** — best friend, died by suicide in 2013, during her rugby years. His death was the catalyst for quitting rugby and, eventually, everything that followed
 
 ## What I want
 
