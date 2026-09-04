@@ -24,7 +24,7 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 
 ## Homecoming (2020 – 2021)
 
-- **2020** — **Home to NZ** (BinderPOS, Tauranga). With Bridget, buys a bus, cuts the roof off, builds a home — Little Kiwi Bus (@littlekiwibus, littlekiwibus.com).
+- **2020** — **Home to NZ: Arrowtown**, to be closer to family — Lee, Dennis, Sandy and co — and to build the housebus with Bridget: buys a bus, cuts the roof off, builds a home (Little Kiwi Bus — @littlekiwibus, littlekiwibus.com). Day job: remote for BinderPOS, a Tauranga company.
 - **2021** — **AiVatar — the million-dollar day.** Principal architect and developer of the AI NFT collaboration with Trey Ratcliff. 6,666 mints in 24 hours, ~$1M in a day; $250k+ later funds her surgeries. Also: Senior Cloud Architect at CFB Group; leet.cloud consultancy (2020–2022).
 
 ## Becoming Lexi (2022 – 2024)
