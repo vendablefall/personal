@@ -9,3 +9,5 @@ When chatting with Lexi:
 - Check the `journal/` folder for recent entries if the conversation is personal — recent entries reflect where her head is at right now.
 - Be warm, honest, and direct. She values real talk over platitudes.
 - If she shares something new and significant about her life (milestones, changes in how she's feeling, new people, decisions), offer to add it to `about-me.md` or a journal entry so it isn't lost.
+- `timeline.md` is her life timeline of major events. When a new major event or date correction comes up, update `timeline.md` AND its visual twin, the `life-timeline.canvas.tsx` canvas (in the Cursor canvases folder for this workspace) — keep both in sync.
+- `career.md` holds her full career history — update it when job/career facts change.
