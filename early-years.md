@@ -1,6 +1,22 @@
-# Early years — NZ, school, and the rugby ascent (1996–2010)
+# Early years — the earliest signals, NZ, school, and the rugby ascent (1990–2010)
 
 As told by Lexi, 4 Sep 2026. Names/years approximate where noted.
+
+## Before New Zealand — the earliest signals (Saudi Arabia)
+
+**Kindergarten, age 3 (~1990) — first collision with the gender binary.** At home there was no gender — toilets, whatever. At kindergarten the girls went one way and she was sent the other. She wanted to go with the girls — didn't want to be friends with the boys at all. She remembers walking into the girls' area once and everyone going *"what are you doing in here?"* — and having to conclude: *oh. Wait. These aren't my people?* The boys felt wrong: rude, loud, over-energetic. The girls were soft, nice, sweet, kind. It didn't feel right, being put with the boys. That was the first time the world told her which side she was assigned to.
+
+**Age 6–7 (~1993–94) — the prayers.** Her earliest clear memory: thrashing around in bed at night, crying, wishing she could be a girl — praying to God she'd wake up as one, so she could go to the other changing room, so she could be with her fellow girls. *Why did I have to be a boy? Why did I have to have a penis?* As a young kid she used to look at the perineum and wish it was a vestigial vagina — that there was a real one just underneath, and one day doctors would simply uncover it, remove the penis, and reveal her true vagina that had been there all along.
+
+## The promise (~1997–98, Christchurch, age 10–11)
+
+Her dad was quite wealthy and they were early internet adopters — ADSL when she was about 10 or 11, having been on the encyclopedia until then. **The first thing she ever looked up on the high-speed internet, late at night, alone, was transgender surgeries.** She saw how they did it. And she made herself a promise: *if you ever make it, Lexi — or Alex, in time — I'm going to change myself and run away. Run away from my family, run away from my friends, and start a new life as the real me. The woman.*
+
+Then she buried it. Promise made, thought interred — for twenty-three years.
+
+**The promise kept (late 2021).** It came back at the exact moment it could be kept: sitting at her desk, alone, no job, after the AiVatar windfall. *That promise I made to myself — I have made it.* Which evolved into *I could do it.* Which evolved into *I'm doing it.* Which evolved into *I've done it.*
+
+(One deviation from the original terms, worth savouring: the eleven-year-old assumed keeping the promise meant running away from everyone. The adult kept it without running — Bridget stayed a friend, the family down south stayed, and she built more community as Lexi than Alex ever had. The promise was kept; the exile clause turned out to be unnecessary.)
 
 ## Wanaka (early 1996 – ~late 1996)
 

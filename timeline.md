@@ -5,11 +5,14 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 ## Desert kid (1987 – 1996)
 
 - **1987** — **Born 29 May.** Moved to Saudi Arabia at three months old.
+- **~1990** — Kindergarten, age 3: first collision with the gender binary. Sent to the boys' side, wanted the girls' — "oh, wait, these aren't my people?"
+- **~1993–94** — Age 6–7, the earliest clear memory: crying at night, praying to wake up as a girl.
 - **early 1996** — Moved to New Zealand, almost 9 — ~9 months in Wanaka (freezing, two jackets and mittens after Saudi's 30–40°), then Christchurch from 1997 when her CFO dad needed city work.
 - **~1997** — **Fendalton Primary: relentless bullying** — kids waited outside school to kick her. Mum moved her to Ilam Primary (university lecturers' kids), where it got better — and where sport arrived, and worth got wired to performance.
 
 ## The best boy (1997 – 2015)
 
+- **~1997–98** — **The promise.** ADSL arrives (early adopters); at 10–11, the first thing she ever looks up, late at night alone, is transgender surgeries. She promises herself: *if you ever make it, I'm going to change myself and start a new life as the real me.* Then buries it — for twenty-three years.
 - **~1999–2000** — Cobham Intermediate: rugby takes off, top teams, suddenly the cool kid.
 - **~2001** — **The gummy bear year.** Puberty hits at Burnside High and she can't face becoming a man — she just doesn't have the words yet. Bunks school to sit in the mall eating gummy bears eight hours a day. Fails 3rd form; labelled a bad kid.
 - **~2002–03** — Christchurch Boys' High, sent to be "straightened out." Lowest class → 3rd in class → top English/maths/science across the board, report card hidden from rugby mates. Union accelerates: division-winning 15As/16As, best in Christchurch.
@@ -36,7 +39,7 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 
 ## Becoming Lexi (late 2021 – 2024)
 
-- **late 2021** — **The realization.** The windfall lets her quit her job and sit with the question: what do I want — a house, a car, a world trip? All she wanted was to be her. The memories come floating back. A 5-gram hero dose of mushrooms shows her that a lifetime of jealousy and insecurity was her wanting to be a girl — and pushing herself away from it to be the best boy. Without the windfall, she doesn't think she would have come out at all.
+- **late 2021** — **The realization — and the promise kept.** The windfall lets her quit her job and sit with the question: what do I want — a house, a car, a world trip? All she wanted was to be her. The memories come floating back — including the promise made at 11. A 5-gram hero dose of mushrooms shows her that a lifetime of jealousy and insecurity was her wanting to be a girl — and pushing herself away from it to be the best boy. At the desk: *I have made it → I could do it → I'm doing it → I've done it.* Without the windfall, she doesn't think she would have come out at all.
 - **Jan 2022** — **Comes out as Lexi.** First Instagram post of the era: a festival photo in a TRANS HUMANS ARE WONDERFUL t-shirt.
 - **Mar 2022** — **Starts medical transition.** The same year she starts at Trimble as senior software architect — petabyte-scale geospatial platform, 8 AWS regions, later FedRAMP lead architect.
 - **end 2022** — **VFS** (voice feminization surgery), Korea. First of six surgical rounds — the running-out-of-time fear made spending the windfall on becoming her an easy call.
