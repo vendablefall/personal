@@ -24,7 +24,7 @@
 
 **The NFT windfall.** Made an NFT project during the 2021 boom that earned her almost a million dollars in a day. Most of it is gone now — ~$150k NZD left — but $250k+ of it went to surgeries: "to make myself pretty and femme, and the girl I always wanted to be." Money well spent, by her own account.
 
-**Coming out.** Was with her partner Bridget when she came out (January 2022). They broke up in early February 2024, about two years into transition. Moved cities in late March 2024, about seven weeks later, and rebuilt from there.
+**Coming out.** Was with her partner Bridget when she came out (January 2022). They broke up in early February 2024, about two years into transition. Moved cities in late March 2024, about seven weeks later — from Arrowtown, where they'd been living, up to Wellington — and rebuilt from there.
 
 ## What I'm proud of
 
@@ -62,7 +62,7 @@
 - **Alex** — a friend she went for drinks with recently; possibly into her (lots of eye contact, but didn't make a move)
 - **Suka** — Samoan girl who's been around a few times; they've kissed a lot and Lexi has a lot of fun with her
 - **Benja** — a friend; came around for dinner
-- **Bridget** — ex-partner and now a genuinely good friend; Welsh; birthday June 3. Together when Lexi came out, broke up early February 2024. Around their birthdays that year (Lexi's May 29, Bridget's June 3), they held an **uncoupling ceremony** — which Lexi partly credits for how good their friendship is now. It's a post on the lexitarian22 Instagram. Together they built the **Little Kiwi Bus** — a full housebus conversion (roof raise and all), documented at @littlekiwibus and littlekiwibus.com
+- **Bridget** — ex-partner and now a genuinely good friend; Welsh; birthday June 3. Together when Lexi came out, broke up early February 2024. Around their birthdays that year (Lexi's May 29, Bridget's June 3), they held an **uncoupling ceremony** in Arrowtown — Lexi flew back down for it, and it was held in the house they had rented together, with all her down-south friends. She partly credits it for how good their friendship is now. It's a post on the lexitarian22 Instagram. Together they built the **Little Kiwi Bus** — a full housebus conversion (roof raise and all), documented at @littlekiwibus and littlekiwibus.com
 - **Mark** — best friend, died by suicide in 2013, during her rugby years. His death was the catalyst for quitting rugby and, eventually, everything that followed
 
 ## What I want

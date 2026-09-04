@@ -49,6 +49,6 @@ Sources: CV (`Alexis-Simpson-CV.docx`, Sep 2026) + LinkedIn ([alexis-simpson-357
 
 ## CV notes / possible polish items (Sep 2026)
 
-- CV header says **Arrowtown, New Zealand** — she lives in Newtown, Wellington. Update unless deliberate.
+- CV header says **Arrowtown, New Zealand** — that's the old address from the Bridget years (they lived there until early 2024). She's in Newtown, Wellington now; worth updating for the job hunt.
 - All certifications are 2019 or earlier (AWS/GCP certs listed expired 2020–21). The experience clearly outweighs them now, but a current cert or two (or dropping expiry-sensitive framing) may tidy the story for recruiters.
 - CV "ALSO" interests: filmmaking, classic cars, metalworking, C# game development in Unity3D, coaching — no mention of Reach by name; could be a strong differentiator for the right employer (real shipped Unity + accessibility work).

@@ -35,8 +35,8 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 
 ## Wellington rebuild (March 2024 – now)
 
-- **late Mar 2024** — **Moves to Wellington**, seven weeks after the breakup, after a week in Veronica and Igor's front room showed her the city. Two rough flats first: Evans Bay with William (his mess wins after 4–5 months), then a Roseneath house with a stunning view and a heartbreaking indoor cat.
-- **late May/early Jun 2024** — **Uncoupling ceremony with Bridget**, held around their birthdays (Lexi's May 29, Bridget's June 3). Lexi partly credits it for the good friendship they have now. Documented on the lexitarian22 Instagram.
+- **late Mar 2024** — **Moves to Wellington** from Arrowtown, seven weeks after the breakup, after a week in Veronica and Igor's front room showed her the city. Two rough flats first: Evans Bay with William (his mess wins after 4–5 months), then a Roseneath house with a stunning view and a heartbreaking indoor cat.
+- **late May/early Jun 2024** — **Uncoupling ceremony with Bridget**, held around their birthdays (Lexi's May 29, Bridget's June 3). Lexi flew back to Arrowtown for it — held in the house they'd rented together, with all her down-south friends. She partly credits it for the good friendship they have now. Documented on the lexitarian22 Instagram.
 - **Mar 2025** — **Home: the Coromansion, Newtown.** The big party flat, minutes from Veronica, Igor and the kids. Found family in place: Veronica, Igor, Shaz.
 - **2025–2026** — **DEXI rises; Reach is born.** DJ career takes off — dark techno and bass, the KiwiBurn cow becomes a brand. Builds Reach, an accessible gaming platform: ~15 games, real testers, several published.
 - **Aug 2026** — The big flat party: 150–200 people, an all-fem bass lineup she curated herself, DEXI on the 2–3am set. Sober these days, and proud of it.
