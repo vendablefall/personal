@@ -38,6 +38,8 @@ Same year, same corridors, a signal she can only read now: jealous of how the gi
 
 Rugby union accelerated hard at Boys' High: 15As and 16As, the best teams in Christchurch — won their divisions.
 
+**The Girls' High scheme (~2003, second year at Boys' High).** She came up with a plan to get into Christchurch Girls' High: they couldn't discriminate based on sex, she reasoned, so she could enrol — and wear the kilt and the dress. Strangely enough (her words), hitting on the girls was never one of the options. **She wanted to be one of them.** The shame of it all kept her from airing her true intentions, but she told a lot of people she was going to Girls' High next year. Where she actually went next year: back to Burnside — the co-ed school. Read in this light, the "escape from Boys' High" wasn't just fleeing a place she hated; it was the closest available approximation of the school she'd actually been telling people about.
+
 **Back to Burnside (~2004–2005, last two years).** After two years of succeeding at Boys' High, she was given the choice of school — and left for Burnside, the worse rugby school, because she hated Boys' High. ("My rugby career probably would have been better if I'd stayed. But I'm trans, and I hated that place.") Played 1st XV at Burnside, a division down; lost to the Boys' High 1st XV by plenty, "which was shameful."
 
 ## Club rugby → the code switch (~2006–2010)
