@@ -24,7 +24,7 @@
 
 **The NFT windfall.** Made an NFT project during the 2021 boom that earned her almost a million dollars in a day. Most of it is gone now — ~$150k NZD left — but $250k+ of it went to surgeries: "to make myself pretty and femme, and the girl I always wanted to be." Money well spent, by her own account.
 
-**Coming out.** Was with her partner Bridget when she came out (January 2022). They broke up ~2024, about two years into transition. Moved cities ~late 2024 and rebuilt from there.
+**Coming out.** Was with her partner Bridget when she came out (January 2022). They broke up in February 2024, about two years into transition. Moved cities ~late 2024 and rebuilt from there.
 
 ## What I'm proud of
 
@@ -62,7 +62,7 @@
 - **Alex** — a friend she went for drinks with recently; possibly into her (lots of eye contact, but didn't make a move)
 - **Suka** — Samoan girl who's been around a few times; they've kissed a lot and Lexi has a lot of fun with her
 - **Benja** — a friend; came around for dinner
-- **Bridget** — ex-partner; Welsh; together when Lexi came out, broke up ~2024. Together they built the **Little Kiwi Bus** — a full housebus conversion (roof raise and all), documented at @littlekiwibus and littlekiwibus.com
+- **Bridget** — ex-partner; Welsh; together when Lexi came out, broke up February 2024. Together they built the **Little Kiwi Bus** — a full housebus conversion (roof raise and all), documented at @littlekiwibus and littlekiwibus.com
 - **Mark** — best friend, died by suicide in 2013, during her rugby years. His death was the catalyst for quitting rugby and, eventually, everything that followed
 
 ## What I want
