@@ -7,14 +7,16 @@
 - 6'2", ~90kg, strong — ex professional athlete's build
 - Polyamorous — solo poly, at least in how she currently describes herself
 - Lives in Newtown, Wellington, NZ; moved there ~late 2024 after the breakup
-- Senior cloud/software architect at a big company, top 5% NZ salary — carried the job through transition and still doing really well at it
+- Senior cloud/software architect at **Trimble Inc.** (multi-tenant geospatial cloud platform), top 5% NZ salary — carried the job through transition and still doing really well at it. Full career history in `career.md`
+- **Sep 2026:** started applying for jobs (Auckland roles = career step up) — either take one she likes or use it as pay leverage; weighing career vs the Wellington community she's built, with Melbourne/Berlin as the "if I'm moving anyway" wildcards
 - DJ career on the side, going really well; also producing music and playing handpan
 
 ## My story
 
 **Childhood.** Moved to Saudi Arabia at 3 months old, lived there until ~9–10, then came to New Zealand. A deeply repressive place for a trans girl to form her early sense of self — her version of femininity/masculinity was very stunted. Bullied in NZ as a kid for being different (the Saudi-raised New Zealander), until it turned out she was a naturally gifted athlete. In NZ, being good at rugby makes you instantly cool — so friendship, value, and worth all got wired to sport and performance.
 
-**Rugby.** Played professional rugby league in Australia 2011–2015, as a male, and was quite good. Calls it "suffering from my success" — she just kept making the next team, kept winning, so she never had a natural off-ramp. Rugby was a mask: "You can make me be a boy? I'll be the best boy." And she was.
+**Rugby.** Played professional rugby league in Australia (Queensland Cup) 2011–2014, as a male, and was quite good. In 2015 she stepped down to senior non-professional footy (two grades lower) — and won the grand final. Her last game ever was winning the GF.
+  - **She's in a video game.** *Rugby League Live 2* (Big Ant Studios, 2012, PS3/Xbox 360) licensed the Queensland Cup rosters — and she was starting for the Sunshine Coast Sea Eagles that season, so she's a playable character in the game (under her deadname, Alex Simpson). Calls it "suffering from my success" — she just kept making the next team, kept winning, so she never had a natural off-ramp. Rugby was a mask: "You can make me be a boy? I'll be the best boy." And she was.
 
 **Mark.** Her best friend Mark died by suicide, and it broke the spell. She realized that even if she was good, even if she won, she'd spent her whole life doing something she didn't want to do. She quit rugby.
 
@@ -60,7 +62,7 @@
 - **Alex** — a friend she went for drinks with recently; possibly into her (lots of eye contact, but didn't make a move)
 - **Suka** — Samoan girl who's been around a few times; they've kissed a lot and Lexi has a lot of fun with her
 - **Benja** — a friend; came around for dinner
-- **Bridget** — ex-partner; together when Lexi came out, broke up ~2024
+- **Bridget** — ex-partner; Welsh; together when Lexi came out, broke up ~2024. Together they built the **Little Kiwi Bus** — a full housebus conversion (roof raise and all), documented at @littlekiwibus and littlekiwibus.com
 - **Mark** — best friend, died by suicide during her rugby years. His death was the catalyst for quitting rugby and, eventually, everything that followed
 
 ## What I want
@@ -87,6 +89,19 @@
   - Spiritual, earthy, organic bass — think ecstatic dance playlists (not that she does ecstatic dance, but that sound)
   - Sexy bass — slow, sultry, grindy, late-night stuff
 - Also produces and plays handpan
+
+## Online presence
+
+- **[@lexitarian22](https://www.instagram.com/lexitarian22/)** — main Instagram (started 2022, the Lexi era). Private; 59 posts, 709 followers / 893 following (Sep 2026). Bio: *"@dexi.dj 🔊 It's a cow-guided journey: grounded, sacred, and slightly unhinged. 🐄 + 🦄 + 🦊"*. Also on Threads as lexitarian22.
+  - **The very first post is her at a festival in a "TRANS HUMANS ARE WONDERFUL" t-shirt** — the opening statement of the Lexi era.
+  - The grid is the whole arc in order: early-transition mirror selfies and first outfits, the bus mid-build, the pink-hair era, Harley Quinn, corsets, DJ sets, cow costumes everywhere ("KET 4 COWS" crew flags), a friend's wedding, festivals, the Avatar 3 red carpet with Allan.
+  - Story highlights include **"Gender identity," "Life mottos," "Little Lexi," "Current mood"** and the 12-hour DJ marathon.
+- **[@dexi.dj](https://www.instagram.com/dexi.dj/)** — the DJ account, public. Display name *"flexi DEXI Lexi"*; 316 followers / 229 following (Sep 2026). Bio: *"Quirky house, driving techno, dubstep, & bass journeys, with a distinctively dark twist."* Has a "Costumes!" highlight. Grid is gig posters and DJ shots: KiwiBurn sets (UKG dubstep 10–11pm Fri at Tangerine Steeze; dark techno 1:30–2:45am at TechnoOasis), WUBFEST (11pm slot), Resonance Festival (20–23 Mar 2026, Leighton's Farm, North Head, North Auckland), Tribe "Rhyme and Reason" (31 Jan), IGNITION, a 12-hours-of-DJs pot-luck marathon, an all-fem "bad witches bringing booming bouncy bass" post. The cow-costumed DJ illustration is her recurring poster art — the KiwiBurn cow is the brand.
+- **[@alexjsimpo](https://www.instagram.com/alexjsimpo/)** — the original account from the Alex era, now reclaimed: renamed *"Lexi Simpson (she/her)"*, private, 161 posts, 298 followers, bio: *"This page is mainly for art, @lexitarian22 is my main."* Now an AI/generative art gallery: psychedelic forests, fluid abstracts, paired femme portraits, a flower-crowned cow. Highlights: **"32bit creations" and "16bit creations"** (AiVatar-era pixel work), **"Trans things," "First 👩 B-Day," "Ai-Art."** Bridget still follows it.
+- **[@littlekiwibus](https://www.instagram.com/littlekiwibus/)** — the housebus she and Bridget built together. Public; 1,577 followers (her biggest account). Full conversion documented: demolition, cutting off and raising the roof, upskilling (welding, metalwork — they built their own metal brake), through to a finished wood-panelled home with tiled shower. Site: [littlekiwibus.com](https://www.littlekiwibus.com) (*"a little welsh girl and a considerably larger kiwi fella finding their way through the build of their lives"* — Bridget is Welsh; the bus predates coming out). Also on Facebook and Pinterest as littlekiwibus.
+- **[SoundCloud: dexi-dj](https://soundcloud.com/dexi-dj)** — mixes live here
+- **[leet.cloud](https://leet.cloud)** — her portfolio/consultancy site, with **[Pebkac](https://blog.leet.cloud)**, the IT blog she started to get ahead in IT (hasn't updated in a long time — it's a time capsule of the certification-blitz years: GlusterFS clusters, building a VPC the morning of her AWS exam, API Gateway guides, the pivot to data engineering). Site showcases her projects: parvoalert, BridgeDoctor, AiVatar, Little Kiwi Bus, and a factory automation build (Raspberry Pi + Monarco HAT with a multi-threaded Python GUI).
+- **[github.com/vendablefall](https://github.com/vendablefall)** · [StackOverflow](http://stackoverflow.com/users/7040399/vendablefall) · Twitter @VendableFall · [LinkedIn](https://www.linkedin.com/in/alexis-simpson-35716189/)
 
 ## A typical week
 
