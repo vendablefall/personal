@@ -26,6 +26,16 @@
 
 **The realization (late 2021).** This part matters: without the windfall, she doesn't think she would have come out or transitioned. The money let her quit her job (CFB Group at the time — she also recalls it as Mindpass) and actually sit with the question: *what do I want in life?* A house? A car? A world trip? All she wanted was to be her. The memories came floating back. Then a hero dose of mushrooms — 5 grams — showed her what was underneath: all the jealousy she'd carried her whole life, all the insecurities, were her wanting to be a girl and wishing she was one — and pushing herself away from it to be the best boy. The windfall didn't just fund the transition; it created the silence in which she could finally hear it.
 
+**The surgeries.** The running-out-of-time fear is real — thirty-four years behind the mask — and it's why she spent through the windfall on surgeries rather than sitting on it. The full sequence:
+- **VFS** (voice feminization) — end of 2022, Korea
+- **SRS** — March 2023
+- **FFS** — end of 2023, Hollywood, with Dr. Jumaily
+- **BA** — June/July 2024
+- **Pelvis plasty + shoulder reduction** — May 2025, Korea
+- **Facelift + nose job #2** — May 2026, Korea
+
+Six rounds across four years and three countries. Money well spent, by her own account: "to make myself pretty and femme, and the girl I always wanted to be."
+
 **Coming out.** Was with her partner Bridget when she came out (January 2022). They broke up in early February 2024, about two years into transition. Moved cities in late March 2024, about seven weeks later — from Arrowtown, where they'd been living, up to Wellington — and rebuilt from there.
 
 ## What I'm proud of
