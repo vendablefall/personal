@@ -36,6 +36,8 @@ Landed from Saudi Arabia — average temperature 30–40° — into a Wanaka spr
 
 Rugby union accelerated hard at Boys' High: 15As and 16As, the best teams in Christchurch — won their divisions.
 
+**A 4th-form signal she can only read now:** she remembers being jealous of how the girls' bums looked in their school kilts, and wanting to wear a kilt herself. At the time it was just a confusing envy; looking back she knows exactly what it was — jealousy of their feminine bodies, of *being* girls. Another entry in the long ledger of jealousy that the mushrooms would finally total up in 2021.
+
 **Back to Burnside (~2004–2005, last two years).** After two years of succeeding at Boys' High, she was given the choice of school — and left for Burnside, the worse rugby school, because she hated Boys' High. ("My rugby career probably would have been better if I'd stayed. But I'm trans, and I hated that place.") Played 1st XV at Burnside, a division down; lost to the Boys' High 1st XV by plenty, "which was shameful."
 
 ## Club rugby → the code switch (~2006–2010)
