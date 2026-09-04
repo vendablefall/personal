@@ -44,6 +44,14 @@ Rugby union accelerated hard at Boys' High: 15As and 16As, the best teams in Chr
 
 **The Spain tour (~2008).** Toured with the CFC seniors — played the Spanish national team and several clubs. "We spanked them all." Three weeks in Madrid. When she got back, they dropped her from the top team — so she quit union and switched to rugby league.
 
+## KFC, the boy racer, and Mitre 10 (2006–07)
+
+**2006 — KFC and the car.** Worked at KFC through 2006. Had a boy racer car she did up herself — rims, exhaust, and a killer subwoofer setup **she built herself**. The car is how she taught herself mechanics (the origin of the classic cars interest, the metalworking, and arguably the bus build — and the subwoofers speak for themselves, given where she dances now). At the end of 2006 KFC offered her a management position; she declined it to go to university the next year. Her boss took it badly — got really angry and made her life unbearable until she quit a few weeks later.
+
+**Summer 2006–07 — Mitre 10 Mega, trade yard.** Worked the summer in the trade yard, where she got familiar with building materials — knowledge that resurfaced thirteen years later when she and Bridget cut the roof off a bus.
+
+**2007–2010 — University of Canterbury.** BCom, double major in Management Science (statistics, supply chain logistics) and Management. Club rugby ran alongside.
+
 **Papanui Tigers (league, ~2008–2010).** Turned out she was a much better league player than union player.
 - Year 1: made the Christchurch/Canterbury **Wests representative team** (best of the West).
 - Year 2 (~2009–10): made the **New Zealand Residents rugby league team**, plus Wests and **Canterbury** rep teams. Toured all over New Zealand.
