@@ -5,12 +5,12 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 ## Desert kid (1987 – 1996)
 
 - **1987** — **Born 29 May.** Moved to Saudi Arabia at three months old.
-- **early 1996** — Moved to New Zealand, almost 9. Bullied for being different — until it turned out she was a naturally gifted athlete. Worth got wired to performance.
+- **early 1996** — Moved to New Zealand, almost 9 — nearly a year in Wanaka, then Christchurch from 1997. Bullied for being different — until it turned out she was a naturally gifted athlete. Worth got wired to performance.
 
 ## The best boy (2010 – 2015)
 
 - **2010** — BCom, University of Canterbury (Management Science + Management).
-- **2011** — **Professional rugby league, Queensland Cup** — Sunshine Coast Sea Eagles (2011–2012), while simultaneously working full-time at CITEC, Brisbane (service desk → cloud specialist).
+- **2011** — **Moves to Brisbane, in between the two Christchurch earthquakes. Professional rugby league, Queensland Cup** — Sunshine Coast Sea Eagles (2011–2012), while simultaneously working full-time at CITEC, Brisbane (service desk → cloud specialist).
 - **2012** — Immortalised in a video game: *Rugby League Live 2* (PS3/Xbox 360) licensed the Queensland Cup rosters — playable character, forever starting for the Sea Eagles.
 - **2013** — **Redcliffe Dolphins, starting prop — and Mark dies.** Front row alongside Petero Civoniceva, one of the greatest ever, in his farewell season at his junior club. The same year, her best friend Mark's suicide breaks the spell: even winning, she'd spent her life doing something she didn't want.
 - **2014** — Final professional season, second year at Redcliffe.
