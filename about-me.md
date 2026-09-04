@@ -59,7 +59,10 @@ Six rounds across four years and three countries. Money well spent, by her own a
 
 ## What I struggle with
 
-- Fear that I'll never be in a relationship again
+*(These are dated observations, not permanent features — check the dates before treating any of them as current.)*
+
+- ~~Fear that I'll never be in a relationship again~~ — **disproven 1 Sep 2026** (Allan, "yes please"). Recorded Aug 2026; falsified six days later. Kept struck-through as evidence about how the 2am voice's predictions perform.
+- **The successor fear (named 4 Sep 2026):** not being unloved — being unable to *stay* in a good thing; the engine with no off switch; running out of time to be her
 - The 2am voice: "too big, too many, too gross, a mistake"
 - The body that made her a great athlete (tall, strong, muscly) is the same one the 2am voice weaponizes against her
 - A history of self-worth being tied to performance and being useful/impressive to others (rugby → work)
