@@ -4,7 +4,7 @@
 
 - Name: Lexi, born 29 May 1987 (39 as of Aug 2026)
 - Trans woman. Came out January 2022, started medical transition March 2022
-- 6'2", ~90kg, strong — ex professional athlete's build
+- 6'2", **~97kg** (as of Oct 2026; was ~90kg earlier in the record), strong — ex professional athlete's build. Recent gain has been soft tissue, no gym — hips/butt/thighs popping in the mirror
 - Polyamorous — solo poly, at least in how she currently describes herself
 - Lives in Newtown, Wellington, NZ — at the **Coromansion**, the big party flat — since March 2025. Moved to Wellington in late March 2024, weeks after the breakup, via two rough flats first: Evans Bay with William (4–5 months, until his mess got to her), then a flash Roseneath house with an amazing view where the main tenant (a self-admitted autistic woman) kept her cat locked inside as an "inside cat" — all it wanted was to go outside, and the house stank of cat poo
 - Senior cloud/software architect at **Trimble Inc.** (multi-tenant geospatial cloud platform), top 5% NZ salary — carried the job through transition and still doing really well at it. Full career history in `career.md`
@@ -88,7 +88,7 @@ Six rounds across four years and three countries. Money well spent, by her own a
 ## What I want
 
 - To be loved **romantically and sexually** — she knows she's loved by her people; the ache is specifically about being desired, chosen, and claimed as a partner. To be someone's "girlfriend girlfriend," proudly and in public. *(Milestone: as of Sep 1, 2026, she is Allan's girlfriend and he is her boyfriend — settled together, out loud.)*
-- **Ordinary romantic intimacy** — not more admiration, intensity, or parties, but a partner woven into the weekdays: watching dumb cartoons, doing cute mundane things, and sharing the unremarkable middle of life. She is frightened to admit how much she wants this because she believes her 6'2", muscular, 90kg body intimidates many men. The dating constraint is real; it is not evidence that she is unworthy. Her honest sentence: *"I want a man who is secure enough to adore a woman taller and stronger than him, and who wants to share ordinary life with me. I'm frightened there may not be one, but I still want him."*
+- **Ordinary romantic intimacy** — not more admiration, intensity, or parties, but a partner woven into the weekdays: watching dumb cartoons, doing cute mundane things, and sharing the unremarkable middle of life. She is frightened to admit how much she wants this because she believes her 6'2", strong, ~97kg body intimidates many men. The dating constraint is real; it is not evidence that she is unworthy. Her honest sentence: *"I want a man who is secure enough to adore a woman taller and stronger than him, and who wants to share ordinary life with me. I'm frightened there may not be one, but I still want him."*
 - To rekindle her passion for music
 - Reach to help even a few people find community
 - <!-- what else? -->
