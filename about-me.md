@@ -4,7 +4,7 @@
 
 - Name: Lexi, born 29 May 1987 (39 as of Aug 2026)
 - Trans woman. Came out January 2022, started medical transition March 2022
-- 6'2" (**73.6 in** taped), **97 kg** as of **8 Oct 2026** (was ~90 kg earlier in the record). Full tape log in `body-measurements.md`. Headline inches that day: waist **31.75** (evening, likely 0.5–1 in high), hip **42** (strict 41.5), seat/butt **43.5**, bust ~**40**, thigh ~**41**. Soft tissue gain, no gym — hips/butt/thighs popping in the mirror
+- 6'2" (**73.6 in** taped), **97 kg** as of **8 Oct 2026**. Full HRT-era tape log in `body-measurements.md` (Day 1 HRT 11 Mar 2022). Latest: waist **31.75** (evening, likely 0.5–1 in high), upper hip **40**, hip/butt **42** (strict 41.5), shoulder **43.5**, bust **41**, thigh L **24**. Soft tissue gain, no gym — hip/butt projection popping in the mirror
 - Polyamorous — solo poly, at least in how she currently describes herself
 - Lives in Newtown, Wellington, NZ — at the **Coromansion**, the big party flat — since March 2025. Moved to Wellington in late March 2024, weeks after the breakup, via two rough flats first: Evans Bay with William (4–5 months, until his mess got to her), then a flash Roseneath house with an amazing view where the main tenant (a self-admitted autistic woman) kept her cat locked inside as an "inside cat" — all it wanted was to go outside, and the house stank of cat poo
 - Senior cloud/software architect at **Trimble Inc.** (multi-tenant geospatial cloud platform), top 5% NZ salary — carried the job through transition and still doing really well at it. Full career history in `career.md`
