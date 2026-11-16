@@ -37,7 +37,7 @@ The thing that makes this work is a shape that is yours by default and joins the
 
 - **Mornings are yours, every day.** Up at 7, in the sea or on the bike before the heat and before anyone else is up. This is the single best hour of a Phuket day and nobody will fight you for it.
 - **One anchor a day with the group**, usually dinner. Everything else optional.
-- **Two or three genuinely shared things across the week**, chosen in advance: Loy Krathong on arrival night, one boat day, one long dinner. That's enough to be "on the family holiday."
+- **Two or three genuinely shared things across the week**, chosen in advance: Loy Krathong on arrival night, one lazy group day with a sunset, one long dinner. That's enough to be "on the family holiday."
 - **One thing with Dad, one on one, low stakes, on your terms.** A sunrise coffee, a walk along a beach, a drive to a viewpoint. Don't wait for a Moment to happen in front of four men at a dinner table. Pick the time and place yourself, early in the week, so it isn't hanging over the rest of it.
 - **Decide now how you'll handle a name or pronoun slip.** Light correction and carry on ("Lexi, Dad") is usually enough; or agree with one brother beforehand that he'll do it so you don't have to. Decide it before you're tired and sunburnt and it happens at dinner.
 - **Exit plan is non-negotiable.** Whether it's the bike or the Grab app, you can leave any room at any time. Knowing that is most of what makes staying easy.
@@ -70,16 +70,17 @@ The thing that makes this work is a shape that is yours by default and joins the
 - **Yoga** – Rawai and Nai Harn have several drop-in studios (the expat scene keeps them busy); morning classes before the heat. Look for a sunrise or beachside class.
 - **Kayak or SUP at Ya Nui** – hire on the beach, paddle round the headland to Nai Harn or out to the little island off the cove. Flat water in high season.
 - **Snorkelling straight off the sand** at Ya Nui and Ao Sane. No boat, no group, no schedule.
-- **Freediving / snorkel day** – Racha Yai or Coral Island from Chalong pier, 15 min away. Calm water, no temples, back by 4. Several freediving schools are based in Rawai/Chalong if you want a proper session.
+- **Villa pool.** Not a joke. A pool you don't have to ride to, at 4pm, with a book.
 - **Sunrise swim at Nai Harn** – then coffee at the lake. Repeat.
 
-**Day trips (the anti-Phi Phi)**
+**Away-days, on the bike (no other islands)**
 
-- **Koh Bon** – the Rawai local secret. A 10–15 minute longtail from Rawai pier to a small island with one beach restaurant, a reef, and nothing else. Hire a longtail at the pier (they'll quote a return fare and come back for you at an agreed time) or go with the restaurant's own boat. The easiest "my own holiday" day there is: out by 10, back by 4, no planning.
-- **Koh Lon** – the bigger, even quieter island next to Koh Bon, also from Rawai pier. Fishing village, mangroves, a couple of beaches.
-- **Koh Yao Noi** – the proper away-day. From Rawai it's ~1h10 on the bike to Bang Rong pier on the north-east coast, then a 30–45 min longtail or speedboat. Rubber plantations, empty roads, water buffalo, one main road, almost nothing to do. Rent a scooter there (or take yours across on the longtail), find a beach, eat at a hut. A long day from Rawai, so it's the one to do if you want to be genuinely gone all day, alone or with one brother.
-- **Phang Nga Bay by sea kayak** – the limestone karsts and sea caves without the James Bond Island bus-tour chaos. Small-group operators leave from the east coast; most will collect from Rawai.
-- Skip Phi Phi day trips. Crowded, long boat, not chill.
+*Stated 16 Nov: no island hopping, no boat trips to other islands. Phuket itself is the whole holiday. The bike is the away-day.*
+
+- **The west-coast ride** – Rawai → Nai Harn → Kata Noi → Karon viewpoint → Kata → back via Chalong. An hour of riding spread across a day, with a swim and a lunch wherever looks good. Kata Noi for the swim, the viewpoint for the photo, Kata for roti and a coffee.
+- **Old Town day** – the 30-minute ride up is half the point. Long breakfast, the shophouse streets around Thalang, Dibuk and Phang Nga roads, a massage, lunch, ride home before the 4pm traffic.
+- **The north, if the mood strikes** – Nai Thon or Banana Beach are 1h+ each way and genuinely empty. A full day, only worth it if you want to be far from everyone.
+- **Nowhere day** – Nai Harn morning, villa pool afternoon, Windmill Viewpoint at dusk, seafood market. The best day of the week might be the one with no plan.
 
 **Sunset and evening**
 
@@ -98,8 +99,8 @@ Built around Rawai. Everything in "Yours" is under 15 minutes on the bike unless
 | Tue | 24 Nov | Land, Geoff drives you south (~1h15), sort SIM + apps, swim if there's light | **Loy Krathong** at Nai Harn Lake or Rawai pier after dark |
 | Wed | 25 Nov | Bike delivered/picked up, sunrise swim at Nai Harn, Ya Nui snorkel | Rawai seafood market dinner |
 | Thu | 26 Nov | Old Town long breakfast (30 min ride), wander, massage on the way home | Optional dinner |
-| Fri | 27 Nov | **Koh Bon** from Rawai pier (easy) or **Koh Yao Noi** (the long one), alone or with one brother | Skip or late dinner |
-| Sat | 28 Nov | Yoga or a kayak morning at Ya Nui, Laem Ka or Ao Sane afternoon | **Boat day** from Chalong (Racha/Coral/Phang Nga) |
+| Fri | 27 Nov | **West-coast ride day**: Kata Noi swim, Karon viewpoint, lunch wherever, home via Chalong. Alone or with one brother | Skip or late dinner |
+| Sat | 28 Nov | Yoga or a kayak morning at Ya Nui, Laem Ka or Ao Sane afternoon | **Group day**: villa pool, Promthep for the famous sunset once, Rawai seafood market dinner |
 | Sun | 29 Nov | Lazy, Kata Noi | **Sunday Walking Street**, Old Town (Grab there and back) |
 | Mon | 30 Nov | **Dad, one on one**: sunrise coffee at Nai Harn or the Windmill Viewpoint at dusk, then whatever | Last-night dinner |
 | Tue | 1 Dec | Final swim, fly | |
