@@ -63,9 +63,13 @@ The thing that makes this work is a shape that is yours by default and joins the
 - **Rawai / Nai Harn cafes** – Rawai's expat population means genuinely good coffee, brunch and healthy places on every corner between the villa and the beach. You won't need to leave the neighbourhood for a good breakfast all week.
 - **Massage every day.** 300–400 baht for an hour of Thai massage at any clean-looking place. This is not a treat, it's the baseline.
 
-**Move your body (the athlete option)**
+**Move your body (nothing combat, nothing competitive)**
 
-- **Muay Thai drop-in class** – you're staying in it. Rawai and Chalong are the training capital of Thailand: Rawai Muay Thai and Sinbi are in Rawai itself, Tiger Muay Thai is 10 min up the road at Chalong, and there are a dozen others. Drop-in sessions welcome beginners, morning or late afternoon. A couple of hours of pads and bag work will clear your head better than anything else on this list.
+*Rawai is the Muay Thai capital of Thailand and the gym signs will be everywhere. Not for Lexi: no Muay Thai, no combat anything. Her kind of movement here is water, breath and stretch.*
+
+- **Yoga** – Rawai and Nai Harn have several drop-in studios (the expat scene keeps them busy); morning classes before the heat. Look for a sunrise or beachside class.
+- **Kayak or SUP at Ya Nui** – hire on the beach, paddle round the headland to Nai Harn or out to the little island off the cove. Flat water in high season.
+- **Snorkelling straight off the sand** at Ya Nui and Ao Sane. No boat, no group, no schedule.
 - **Freediving / snorkel day** – Racha Yai or Coral Island from Chalong pier, 15 min away. Calm water, no temples, back by 4. Several freediving schools are based in Rawai/Chalong if you want a proper session.
 - **Sunrise swim at Nai Harn** – then coffee at the lake. Repeat.
 
@@ -95,7 +99,7 @@ Built around Rawai. Everything in "Yours" is under 15 minutes on the bike unless
 | Wed | 25 Nov | Bike delivered/picked up, sunrise swim at Nai Harn, Ya Nui snorkel | Rawai seafood market dinner |
 | Thu | 26 Nov | Old Town long breakfast (30 min ride), wander, massage on the way home | Optional dinner |
 | Fri | 27 Nov | **Koh Bon** from Rawai pier (easy) or **Koh Yao Noi** (the long one), alone or with one brother | Skip or late dinner |
-| Sat | 28 Nov | Muay Thai morning in Rawai, Laem Ka or Ao Sane afternoon | **Boat day** from Chalong (Racha/Coral/Phang Nga) |
+| Sat | 28 Nov | Yoga or a kayak morning at Ya Nui, Laem Ka or Ao Sane afternoon | **Boat day** from Chalong (Racha/Coral/Phang Nga) |
 | Sun | 29 Nov | Lazy, Kata Noi | **Sunday Walking Street**, Old Town (Grab there and back) |
 | Mon | 30 Nov | **Dad, one on one**: sunrise coffee at Nai Harn or the Windmill Viewpoint at dusk, then whatever | Last-night dinner |
 | Tue | 1 Dec | Final swim, fly | |
