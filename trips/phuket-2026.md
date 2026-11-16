@@ -11,22 +11,21 @@
 - **Conditions:** last week of November is the start of high season. Showers mostly gone, west-coast sea flattening out, boat trips reliable, prices not yet at December peak. Days ~31°C, nights ~25°C, sea ~29°C. Sunset ~6:05pm.
 - **Landing-night bonus:** **Tuesday 24 Nov is Loy Krathong**, the full-moon festival where everyone floats a candle-lit krathong on the water after dark. Phuket's main local gathering is Saphan Hin in Phuket Town (seaside festival runs 16–25 Nov); Nai Harn Lake and Kata are the calm versions; Patong is the loud one. Peak is ~8–10pm.
 
-## The motorbike (sort this before you fly)
+## The motorbike
 
-To ride legally in Thailand you need **both**:
+**Licensing: sorted.** Lexi holds a NZ **class 6** (motorcycle) licence and an **IDP** (confirmed 16 Nov 2026). That's the full legal requirement in Thailand; carry both originals on the bike, the IDP is only valid alongside the home licence.
 
-1. A home licence that covers motorcycles (in NZ that's **class 6**, not just a car licence), and
-2. An **International Driving Permit** with the motorcycle category, issued in NZ before you leave (AA does them, same-day, about $30–40). The IDP only mirrors the classes you already hold.
+Checkpoints are at both ends of Patong Hill, Chalong circle, Route 4233 Chalong–Rawai, Phuket Town, and the airport road. Being licensed means they're a 30-second wave-through rather than a fine, and more importantly it keeps travel insurance intact.
 
-Rental shops will hand you a 125cc scooter regardless. The police won't: checkpoints at both ends of Patong Hill, Chalong circle, Route 4233 Chalong–Rawai, Phuket Town, and the airport road. Unlicensed riding is the most common offence on the island (26,000+ cases in 2025), fines ~500–2,000 baht, bike can be held. The real problem is insurance: **most travel policies exclude or void motorbike claims if you don't hold the right licence, exceed their cc limit (often 50cc), or aren't wearing a helmet.** Thailand is among the world's deadliest countries for motorcycle deaths; a Phuket hospital bill without cover is life-altering money.
+**What's left to do:**
 
-**If you have class 6:** get the IDP, check your travel policy's motorbike clause (cc limit + licence requirement), wear the helmet every time, never leave your passport as the deposit (a photocopy + cash deposit is normal), and photograph every scratch on the bike before you ride off. 125cc scooter is ~200–300 baht/day.
+- **Read the travel policy's motorbike clause.** Being licensed isn't the only condition: many policies cap engine size (some at 50cc, which rules out the standard 125cc scooter), and all of them require a helmet. If the cap is too low, buy a policy or add-on that covers 125cc before flying. Check for Thailand specifically.
+- **Pick the bike.** A 125cc automatic (Honda Click / PCX, Yamaha NMAX) is the right tool: ~200–300 baht/day, cheaper by the week. The PCX/NMAX are more stable and comfortable for someone 6'2" on the hilly Kata–Karon–Patong and Nai Harn roads. Ask the villa to recommend a shop, or use a proper rental company with a written contract and clear damage terms.
+- **Rental hygiene:** never leave your passport as deposit (photocopy + cash is normal), confirm the bike's compulsory insurance (Por Ror Bor) is current, ask in writing what the shop covers for damage, photograph every panel and scratch before riding off, and check brakes, tyres and lights before you leave the forecourt.
+- **Helmet every ride, no exceptions.** Legally required for rider and pillion, fine up to 2,000 baht, and an unhelmeted crash is an insurance refusal. The shop's helmet will be rubbish; a 500–800 baht proper one from a Big C or motorbike shop is worth it for a week.
+- **Riding notes:** left side like NZ. Scooters filter, cars don't look, sand on corners after rain. Patong Hill in both directions and the Kata–Karon hill are the two roads that hurt tourists; take them slow, especially the first time and after dark. Nights out: Grab, not the bike.
 
-**If you don't have class 6:** don't ride uninsured in Phuket on a family trip. The autonomy you actually want is "I can leave whenever I like," and you can get that other ways:
-
-- **Grab and Bolt** both run in Phuket. Grab Bike / Bolt Moto is a bike taxi at the back of the app, cheap and fast through traffic; cars are also cheap by NZ standards. This gives you the exit plan without the risk.
-- **Rent a car for a day or two** (NZ car licence + IDP is fine) for the far-beach days.
-- **Rent a scooter on Koh Yao Noi** (see day trips) where the roads are empty and the island is 20 minutes end to end. Still technically the same rule applies, but the risk profile is a different planet from Phuket's main roads.
+**Backup for days off the bike:** Grab and Bolt both run in Phuket, bike taxi or car, cheap by NZ standards. Useful for the Walking Street night, any evening involving a drink, and the airport.
 
 ## The "own holiday" structure
 
@@ -68,7 +67,7 @@ The thing that makes this work is a shape that is yours by default and joins the
 
 **Day trips (the anti-Phi Phi)**
 
-- **Koh Yao Noi** – longtail or speedboat from Bang Rong pier on the east coast (~30–45 min). Rubber plantations, empty roads, water buffalo, one main road, almost nothing to do. Rent a scooter there, find a beach, eat at a hut. This is the single best "my own holiday" day on offer. Go alone or with one brother.
+- **Koh Yao Noi** – longtail or speedboat from Bang Rong pier on the east coast (~30–45 min). Rubber plantations, empty roads, water buffalo, one main road, almost nothing to do. Rent a scooter there (or take yours across on the longtail; they'll load it), find a beach, eat at a hut. This is the single best "my own holiday" day on offer. Go alone or with one brother.
 - **Phang Nga Bay by sea kayak** – the limestone karsts and sea caves without the James Bond Island bus-tour chaos. Small-group operators leave from the east coast.
 - Skip Phi Phi day trips. Crowded, long boat, not chill.
 
@@ -86,7 +85,7 @@ Adjust once the villa location is known.
 | Day | Date | Yours | Group |
 |---|---|---|---|
 | Tue | 24 Nov | Land, sort SIM + apps, swim | **Loy Krathong** after dark |
-| Wed | 25 Nov | Sort bike (or Grab), sunrise swim, Nai Harn | Dinner |
+| Wed | 25 Nov | Pick up the bike, sunrise swim, Nai Harn | Dinner |
 | Thu | 26 Nov | Old Town long breakfast, wander, massage | Optional dinner |
 | Fri | 27 Nov | **Koh Yao Noi** day, alone or with one brother | Skip or late dinner |
 | Sat | 28 Nov | Muay Thai morning, beach afternoon | **Boat day** (Racha/Coral/Phang Nga) or Rawai seafood dinner |
@@ -98,8 +97,8 @@ The one-on-one with Dad is placed late here so the week has warmed up first; mov
 
 ## Pre-trip checklist
 
-- [ ] Check NZ licence for **class 6**; if yes, get the **IDP** from AA
-- [ ] Travel insurance: read the **motorbike clause** (cc limit, licence requirement, helmet)
+- [x] Class 6 licence and IDP – held. Pack both originals.
+- [ ] Travel insurance: read the **motorbike clause** (cc limit, helmet). Upgrade if it won't cover 125cc.
 - [ ] Install **Grab** and **Bolt**
 - [ ] Thai eSIM (AIS / dtac / TrueMove, buy before you fly or at the airport)
 - [ ] Tell the brothers the "own holiday" frame before the flight, not after

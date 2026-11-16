@@ -9,7 +9,7 @@
 - Lives in Newtown, Wellington, NZ — at the **Coromansion**, the big party flat — since March 2025. Moved to Wellington in late March 2024, weeks after the breakup, via two rough flats first: Evans Bay with William (4–5 months, until his mess got to her), then a flash Roseneath house with an amazing view where the main tenant (a self-admitted autistic woman) kept her cat locked inside as an "inside cat" — all it wanted was to go outside, and the house stank of cat poo
 - Senior cloud/software architect at **Trimble Inc.** (multi-tenant geospatial cloud platform), top 5% NZ salary — carried the job through transition and still doing really well at it. Full career history in `career.md`
 - **Sep 2026:** started applying for jobs (Auckland roles = career step up) — either take one she likes or use it as pay leverage; weighing career vs the Wellington community she's built, with Melbourne/Berlin as the "if I'm moving anyway" wildcards
-- **24 Nov – 1 Dec 2026: Phuket** with Dad (Murray), brothers Gerard and Hugh, and uncle Geoff — villa, wants her own motorbike and her own chill holiday inside the family one. First overseas *holiday* as Lexi (Korea/LA were surgery trips) and first real time with Dad since coming out. Nervous. Plan in `trips/phuket-2026.md`
+- **24 Nov – 1 Dec 2026: Phuket** with Dad (Murray), brothers Gerard and Hugh, and uncle Geoff — villa, her own motorbike (she holds a class 6 licence + IDP) and her own chill holiday inside the family one. First overseas *holiday* as Lexi (Korea/LA were surgery trips) and first real time with Dad since coming out. Nervous. Plan in `trips/phuket-2026.md`
 - DJ career on the side, going really well; also producing music and playing handpan
 
 ## My story
