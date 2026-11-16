@@ -62,6 +62,7 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 - **Aug 2026** — The big flat party: 150–200 people, an all-fem bass lineup she curated herself, DEXI on the 2–3am set. Sober these days, and proud of it.
 - **1 Sep 2026** — **Allan becomes her boyfriend.** Six days after writing "I'm never going to be in a relationship again." She asked the brave question; he said "yes please."
 - **Sep 2026** — The open question: applying for jobs — a step up in Auckland, leverage at Trimble, or the wildcards, Melbourne and Berlin. Community she's built vs. the bigger stage.
+- **24 Nov – 1 Dec 2026** — **Phuket with the family** — Dad (Murray), brothers Gerard and Hugh, uncle Geoff. A villa, a motorbike, and her own holiday inside the group one. First overseas *holiday* as Lexi (Korea and LA were surgery trips), and the first real stretch of days with Dad since coming out. Lands on Loy Krathong night. *(Upcoming at time of writing.)*
 
 ---
 
