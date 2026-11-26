@@ -62,6 +62,7 @@ Major events by era. Keep this in sync with the visual canvas (`life-timeline.ca
 - **Aug 2026** — The big flat party: 150–200 people, an all-fem bass lineup she curated herself, DEXI on the 2–3am set. Sober these days, and proud of it.
 - **1 Sep 2026** — **Allan becomes her boyfriend.** Six days after writing "I'm never going to be in a relationship again." She asked the brave question; he said "yes please."
 - **Sep 2026** — The open question: applying for jobs — a step up in Auckland, leverage at Trimble, or the wildcards, Melbourne and Berlin. Community she's built vs. the bigger stage.
+- **Nov 2026** — **Thailand: meets her dad for the first time as Lexi.** A family trip with her two brothers and her uncle, almost five years after coming out. The eleven-year-old's promise was to "run away from my family and start a new life as the real me" — the 39-year-old flew toward them instead, as her.
 
 ---
 
